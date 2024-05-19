@@ -1,2 +1,2 @@
-Student Initials : K Sihi
+Student Initials : K Sishi
 Student No. : 22315536
